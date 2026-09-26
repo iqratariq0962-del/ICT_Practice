@@ -1,1 +1,1 @@
-# ICT_Practice
+ICT (Information and Communication Technology) means using digital technologies to access, create, manage, and share information. To me, ICT is an essential part of modern education and daily life because it helps us communicate, learn new skills, solve problems, and work more efficiently. It also helps me understand computers, networks, and other technologies that are important for my academic and professional future.
